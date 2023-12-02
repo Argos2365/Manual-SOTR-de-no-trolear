@@ -1,0 +1,1 @@
+# Manual-SOTR-de-no-trolear
